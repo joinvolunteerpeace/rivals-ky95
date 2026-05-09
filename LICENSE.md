@@ -1,4 +1,4 @@
-
+Experience rivals like never before with rivals ultimate Scripts, the #1 Script. Includes auto-heal and auto-collect for unbeatable performance.
 
 
 
